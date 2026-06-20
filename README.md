@@ -1,5 +1,4 @@
 > 2026年6月更新 ChatGPT Plus 充值、ChatGPT Pro 充值、Codex 充值、GPT 充值、国内 ChatGPT 充值、ChatGPT Plus 国内开通、ChatGPT Pro 国内续费、Codex 国内使用指南
-2026 Latest ChatGPT Plus, ChatGPT Pro and Codex Guide for China Users. ChatGPT Plus Recharge, ChatGPT Pro Recharge, Codex Subscription, GPT Plus, GPT Pro, AI Coding Assistant.
 
 ## 推荐入口
 
