@@ -1,4 +1,15 @@
-> 2026年6月更新 ChatGPT Plus 充值、ChatGPT Pro 充值、Codex 充值、GPT 充值、国内 ChatGPT 充值、ChatGPT Plus 国内开通、ChatGPT Pro 国内续费、Codex 国内使用指南
+# 2026年6月最新 ChatGPT Plus / Pro / Codex 充值指南
+
+更新时间：2026年6月
+
+关键词：
+ChatGPT Plus充值
+ChatGPT Pro充值
+Codex充值
+GPT充值
+GPT Plus续费
+GPT Pro续费
+Codex订阅
 
 ## 推荐入口
 
